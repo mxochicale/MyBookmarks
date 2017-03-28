@@ -23,11 +23,16 @@ https://github.com/qutebrowser/qutebrowser
 https://en.wikipedia.org/wiki/Siteswap
 
 
-* E13 The Hunt For AI  
+* [E13 The Hunt For AI](http://www.bbc.co.uk/programmes/b01fmbvb )
 http://www.dailymotion.com/video/x1y5mfs_e13-the-hunt-for-ai_tv
-The content of the video is property of BBC so it might be illegal
-to stream this video. My purpose here is to present some updates
-of robotics around the world to better updates I recommend to watch:
+The content of the previous video is property of BBC so it might be illegal
+for some audiences to stream such video. However, the general purpose 
+for sharing that video is to show the general audience another door in the 
+journey of robotics. The following videos from Springer Handbook of Robotic
+are very inspirational:   
+https://vimeo.com/188466401  
+https://vimeo.com/173394878   
+
 
 
  
