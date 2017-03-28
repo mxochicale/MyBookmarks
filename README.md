@@ -19,13 +19,18 @@ http://www.qutebrowser.org/
 https://github.com/qutebrowser/qutebrowser    
 
 
-
 * Juggling Patterns   
 https://en.wikipedia.org/wiki/Siteswap
 
 
 * E13 The Hunt For AI  
 http://www.dailymotion.com/video/x1y5mfs_e13-the-hunt-for-ai_tv
+The content of the video is property of BBC so it might be illegal
+to stream this video. My purpose here is to present some updates
+of robotics around the world to better updates I recommend to watch:
+
+
+ 
 
 
 * Inspirational Scientists   
