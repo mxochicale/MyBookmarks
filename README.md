@@ -1,10 +1,9 @@
 # Some Useful Bookmarks
 
+
+# [Google Scholar](https://scholar.google.co.uk/)
+
 # [Bham email](https://owa04.bham.ac.uk/owa/)
-
-* [1-1 English tutorial](http://www.meetme.so/1to1english) 
-* [more](https://intranet.birmingham.ac.uk/as/bia/insessional/1-1english.aspx)
-
 
 # [Gmail](https://accounts.google.com/ServiceLogin?continue=https%3A%2F%2Fmail.google.com%2Fmail%2F&service=mail&sacu=1&rip=1#identifier)
 
@@ -15,6 +14,12 @@
 
 
 # Extras
+* [1-1 English tutorial](http://www.meetme.so/1to1english) 
+* [more](https://intranet.birmingham.ac.uk/as/bia/insessional/1-1english.aspx)
+
+
+
+
 * keyboard-focused browser with a minimal GUI  
 http://www.qutebrowser.org/    
 https://github.com/qutebrowser/qutebrowser    
@@ -36,6 +41,5 @@ https://vimeo.com/173394878
 
 
 
-
-* Inspirational Scientists   
+* Scientists   
 http://www.martinpeniak.com/index.php?option=com_content&view=article&id=12&Itemid=43  
