@@ -1,6 +1,3 @@
-# Some Useful Bookmarks
-
-
 # [Google Scholar](https://scholar.google.co.uk/)
 
 # [Bham email](https://owa04.bham.ac.uk/owa/)
@@ -13,33 +10,6 @@
 
 
 
-# Extras
-* [1-1 English tutorial](http://www.meetme.so/1to1english) 
+
+* [1-1 English tutorial](http://www.meetme.so/1to1english)
 * [more](https://intranet.birmingham.ac.uk/as/bia/insessional/1-1english.aspx)
-
-
-
-
-* keyboard-focused browser with a minimal GUI  
-http://www.qutebrowser.org/    
-https://github.com/qutebrowser/qutebrowser    
-
-
-* Juggling Patterns   
-https://en.wikipedia.org/wiki/Siteswap
-
-
-* [E13 The Hunt For AI](http://www.bbc.co.uk/programmes/b01fmbvb )
-http://www.dailymotion.com/video/x1y5mfs_e13-the-hunt-for-ai_tv
-The content of the previous video is property of BBC so it might be illegal
-for some audiences to stream such video. However, the general purpose 
-for sharing that video is to show the general audience another door in the 
-journey of robotics. The following videos from Springer Handbook of Robotic
-are very inspirational:   
-https://vimeo.com/188466401  
-https://vimeo.com/173394878   
-
-
-
-* Scientists   
-http://www.martinpeniak.com/index.php?option=com_content&view=article&id=12&Itemid=43  
