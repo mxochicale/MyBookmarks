@@ -1,6 +1,3 @@
-
-
-
 # Basebarsovia by Jorge Rugerio ( [twitter](https://twitter.com/jrugerio) | [instagram](https://www.instagram.com/jrugeriomx/) )
 
 Listen REACTOR at [emisoras](http://www.emisoras.com.mx/#reactor) or
@@ -17,21 +14,19 @@ listen Reactor.
 * Reactor' programs
   [MariaLaDelRadio](https://twitter.com/marialadelradio)
 
-# WHAT  I LIKE TO LISTEN:
+# WHAT I LIKE TO LISTEN:
 
-
+## [Revés/Café Tacuba](https://en.wikipedia.org/wiki/Rev%C3%A9s/Yo_Soy)
+* [Listen](https://www.youtube.com/watch?v=5B5XTc8LtIw)
 
 ## [David August](https://www.residentadvisor.net/dj/davidaugust)
 * [Listen](https://www.youtube.com/watch?v=mRfwdJx0NDE)
-
 
 ## Massive Attack - [100th_Window](https://en.wikipedia.org/wiki/100th_Window)
  * [Listen](https://www.youtube.com/watch?v=rhXuCz6gBUQ)
 
 
 ## Epicuros -- Artificial Intelligence vol 3 [Youtube](https://www.youtube.com/watch?v=EBC9LIUpKeo) | [mixcloud](https://www.mixcloud.com/Ambient_Epicuros/011-epicuros-artificial-intelligence-vol-3/) (October 2017)
-
-
 
 More human than human is our motto.   ― Eldon Tyrell
 
@@ -57,5 +52,3 @@ Tracklist:
 
 
 ## NEW ONE
-
-
