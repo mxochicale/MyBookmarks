@@ -2,7 +2,9 @@ THIS IS WHAT I LIKE TO LISTEN
 ---
 
 ## [Revés/Café Tacuba](https://en.wikipedia.org/wiki/Rev%C3%A9s/Yo_Soy)
-* [Listen](https://www.youtube.com/watch?v=5B5XTc8LtIw)
+* [Listen](https://www.youtube.com/watch?v=5B5XTc8LtIw).
+* The more I listen [La Seven](https://listenonrepeat.com/?v=u0ydmeA_pek#Cafe_Tacvba_-__La_7_(Reves)) the more I feel astonished about
+the hidden patterns in the music. (8NOV2017)
 
 ## [David August](https://www.residentadvisor.net/dj/davidaugust)
 * [Listen](https://www.youtube.com/watch?v=mRfwdJx0NDE)
@@ -11,45 +13,21 @@ THIS IS WHAT I LIKE TO LISTEN
  * [Listen](https://www.youtube.com/watch?v=rhXuCz6gBUQ)
 
 ## Epicuros -- Artificial Intelligence vol 3 [Youtube](https://www.youtube.com/watch?v=EBC9LIUpKeo) | [mixcloud](https://www.mixcloud.com/Ambient_Epicuros/011-epicuros-artificial-intelligence-vol-3/) (October 2017)
-
 More human than human is our motto.   ― Eldon Tyrell
-
-Tracklist:
-01. Vangelis - Deckard meets Rachael + [Hecq - Hypnos II (Lost For Words)]
-02. Scann-Tec - Hello Human (live edit) [3:12]
-03. Ray Charles - Say No More (Sinoptik Music Remix) [8:53]
-04. Zero Cult - Seclution [13:55]
-05. Chilling Matenda - Flashback [20:36]
-06. Human Blue - Wonderworld [26:33]
-07. Antiloop - Analogue Relaxation [33:21]
-08. Bluetech - Enter the Lovely [38:46]
-09. Sundial Aeon - Aerospace Labyrinth [46:29]
-10. Ten Madison - After the Cut [49:52]
-11. Lounge Conjunction - Composite Five [55:55]
-12. Koan - Odysseus Under the Old Tree [1:03:59]
-13. Sesen - Sun Ritual [1:11:20]
-14. Scann-Tec - Aviator [1:15:45]
-15. Koan - The Island of Deceased Ships [1:21:12]
-16. Gysnoize - Everything And Nothing [1:28:07]
-17. Phutureprimitive - Cryogenic Dreams [1:31:11]
-18. The XX - Intro [1:36:51]
 
 
 
 ## RADIO
 
 ###  Basebarsovia by Jorge Rugerio ( [twitter](https://twitter.com/jrugerio) | [instagram](https://www.instagram.com/jrugeriomx/) )
-
-Listen REACTOR at [emisoras](http://www.emisoras.com.mx/#reactor) or
-[tunein](https://tunein.com/radio/Reactor-FM-1057-s24573/)
-
+I have been listening Jorge Rugerio for quite a while, maybe since 2000.
+I just got that vague memory in my adolescence where I recorded some tapes of
+rock 101. Then, I just discovered "el gordito de la radio" at
 [XHOF-FM](https://en.wikipedia.org/wiki/XHOF-FM), also known as Reactor 105.7,
-is a radio station in Mexico City that plays alternative rock music, and hip
-hop mainly in English and Spanish.
+which plays alternative rock music, and hip hop mainly in English and Spanish.
 
-I have been listeing Jorge Rugerio for quite a while, maybe since 2000 but
-in general I started to listen rock 101 and then for some reason I went to
-listen Reactor.
+Go to [emisoras](http://www.emisoras.com.mx/#reactor) or
+[tunein](https://tunein.com/radio/Reactor-FM-1057-s24573/) to listen REACTOR
 
-* Reactor' programs
-  [MariaLaDelRadio](https://twitter.com/marialadelradio)
+Reactor' programs:
+* [MariaLaDelRadio](https://twitter.com/marialadelradio)
