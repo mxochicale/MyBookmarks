@@ -1,6 +1,11 @@
 THIS IS WHAT I LIKE TO LISTEN
 ---
 
+## Skylon
+
+
+* [album](https://en.wikipedia.org/wiki/Skylon_(album)) [:musical_note:](https://www.youtube.com/watch?v=V4Iow4cWvP0) _(added on 23NOV2017)_
+ The Queen Of All Everything 11:58 is very nice!
 
 
 ## Yoshimi Battles the Pink Robots
