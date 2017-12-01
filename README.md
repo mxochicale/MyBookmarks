@@ -4,4 +4,4 @@
 
 # * [Journal&Country Rank](http://www.scimagojr.com/)
 
-# * [UoB](https://github.com/mxochicale/myBookmarks/blob/master/MUSIC.md)
+# * [UoB](https://github.com/mxochicale/myBookmarks/blob/master/UoB.md)
