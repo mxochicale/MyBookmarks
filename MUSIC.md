@@ -1,4 +1,4 @@
-Some hyperlinks of what I like to listen
+SOME HYPERLINKS OF WHAT I LIKE TO LISTEN 
 ---
 
 
@@ -31,8 +31,8 @@ the hidden patterns in the music. _(added:8NOV2017)_
 * [David August](https://www.residentadvisor.net/dj/davidaugust) >>  [:musical_note:](https://www.youtube.com/watch?v=mRfwdJx0NDE)
 
 ## Massive Attack
-* [100th_Window](https://en.wikipedia.org/wiki/100th_Window) >>  [;music_note:](https://www.youtube.com/watch?v=rhXuCz6gBUQ)
-* Small Time Shot Away >>  [:music_note:](https://www.youtube.com/watch?v=dEl57EPBVeY)
+* [100th_Window](https://en.wikipedia.org/wiki/100th_Window) >>  [:musical_note:](https://www.youtube.com/watch?v=rhXuCz6gBUQ)
+* Small Time Shot Away >>  [:musical_note:](https://www.youtube.com/watch?v=dEl57EPBVeY)
 
 
 ## Epicuros
