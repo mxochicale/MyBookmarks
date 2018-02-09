@@ -2,8 +2,15 @@ SOME HYPERLINKS OF WHAT I LIKE TO LISTEN
 ---
 
 
+# Wolfgang Haffner
+* [WolfgangHaffner](https://en.wikipedia.org/wiki/Wolfgang_Haffner) -- Round Silence (feat. Dominic Miller)  >> [:notes:](https://www.youtube.com/watch?v=sexpir_GKv8) 
+>> [:loop:](https://listenonrepeat.com/?v=sexpir_GKv8)   
+ _(added:9feb2018)_
 
-
+# Alice Coltrane
+* [Alice Coltrane](https://en.wikipedia.org/wiki/Alice_Coltrane) - Turiya And Ramakrishna >> [:notes:](https://www.youtube.com/watch?v=QUMuDWDVd20)
+>> [:loop:](https://listenonrepeat.com/?v=QUMuDWDVd20)   
+_(added:6feb2018)_
 
 ## Skylon
 * [Skylon](https://en.wikipedia.org/wiki/Skylon_(album)). The Queen Of All Everything >> [:musical_note:](https://www.youtube.com/watch?v=HnhuZ_p-dbQ) _(added on 23NOV2017)_
