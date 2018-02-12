@@ -9,7 +9,7 @@ I :heart: THIS GAME :basketball:
 # NBA
 
 * [YouTube Channel](https://www.youtube.com/user/NBA/videos)
-
+* [stats.nba.com/standings/](https://stats.nba.com/standings/)
 
 # JORGE Gutiérrez's Interviews
 
