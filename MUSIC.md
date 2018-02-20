@@ -2,10 +2,11 @@ SOME OF THE MUSIC WHAT I LIKE TO LISTEN
 ---
 
 
-* Massive Attack - The Spoils ft. [Hope Sandoval](https://en.wikipedia.org/wiki/Hope_Sandoval)
+* Massive Attack - The Spoils ft. [Hope Sandoval](https://en.wikipedia.org/wiki/Hope_Sandoval) | 
+[:notes:](https://www.youtube.com/watch?v=8r31DFrFs5A) [:loop:](https://listenonrepeat.com/?v=8r31DFrFs5A)  |   
+_(added:20feb2018)_
 
-> [:notes:](https://www.youtube.com/watch?v=8r31DFrFs5A) [:loop: :notes:](https://listenonrepeat.com/?v=8r31DFrFs5A)  |   _(added:20feb2018)_
-> I am not only fascinated with the music and the lyrics but also the variation of facial representations.
+> What an incredible sensation, I am not only fascinated with the music and the lyrics but also the variation of facial representations.
 
 
 
