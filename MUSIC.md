@@ -1,15 +1,24 @@
-SOME HYPERLINKS OF WHAT I LIKE TO LISTEN 
+SOME OF THE MUSIC WHAT I LIKE TO LISTEN 
 ---
+
+
+* Massive Attack - The Spoils ft. [Hope Sandoval](https://en.wikipedia.org/wiki/Hope_Sandoval)
+
+> [:notes:](https://www.youtube.com/watch?v=8r31DFrFs5A) [:loop: :notes:](https://listenonrepeat.com/?v=8r31DFrFs5A)  |   _(added:20feb2018)_
+> I am not only fascinated with the music and the lyrics but also the variation of facial representations.
+
 
 
 # Wolfgang Haffner
 * [WolfgangHaffner](https://en.wikipedia.org/wiki/Wolfgang_Haffner) -- Round Silence (feat. Dominic Miller)  >> [:notes:](https://www.youtube.com/watch?v=sexpir_GKv8) 
->> [:loop:](https://listenonrepeat.com/?v=sexpir_GKv8)   
+
+> [:loop: :notes:](https://listenonrepeat.com/?v=sexpir_GKv8)   
  _(added:9feb2018)_
 
 # Alice Coltrane
 * [Alice Coltrane](https://en.wikipedia.org/wiki/Alice_Coltrane) - Turiya And Ramakrishna >> [:notes:](https://www.youtube.com/watch?v=QUMuDWDVd20)
->> [:loop:](https://listenonrepeat.com/?v=QUMuDWDVd20)   
+
+> [:loop: :notes: ](https://listenonrepeat.com/?v=QUMuDWDVd20)   
 _(added:6feb2018)_
 
 ## Skylon
@@ -34,12 +43,19 @@ _(added:6feb2018)_
 * The more I listen [La Seven](https://listenonrepeat.com/?v=u0ydmeA_pek#Cafe_Tacvba_-__La_7_(Reves)) the more I feel astonished about
 the hidden patterns in the music. _(added:8NOV2017)_
 
+* "La Locomotora" (E. del Real) [:link:](https://es.wikipedia.org/wiki/Rev%C3%A9s/Yo_soy)
+>  [:notes: :loop:](https://listenonrepeat.com/?v=bGkXVZ-J5A8)  _added:13FEB2018_
+
+
+
 ## David August
 * [David August](https://www.residentadvisor.net/dj/davidaugust) >>  [:musical_note:](https://www.youtube.com/watch?v=mRfwdJx0NDE)
 
 ## Massive Attack
 * [100th_Window](https://en.wikipedia.org/wiki/100th_Window) >>  [:musical_note:](https://www.youtube.com/watch?v=rhXuCz6gBUQ)
 * Small Time Shot Away >>  [:musical_note:](https://www.youtube.com/watch?v=dEl57EPBVeY)
+
+
 
 
 ## Epicuros
