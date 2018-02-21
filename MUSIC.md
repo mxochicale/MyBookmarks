@@ -2,12 +2,35 @@ SOME OF THE MUSIC WHAT I LIKE TO LISTEN
 ---
 
 
+* Horace Silver - Señor Blues ([Horace Silver](https://en.wikipedia.org/wiki/Horace_Silver), [Blue Michell](https://en.wikipedia.org/wiki/Blue_Mitchell)  & [Junior Cook](https://en.wikipedia.org/wiki/Junior_Cook))
+ | [:notes:](https://www.youtube.com/watch?v=t8jFGFwOm7k)
+ | [:loop:](https://listenonrepeat.com/?v=t8jFGFwOm7k)
+ |  _(added:21feb2018)_
+	** try this one [Horace Silver at Newport 1959](https://www.youtube.com/watch?v=dUAu_3R0VPI) 
+
+> such a beuatiful piece, Si Señor!
+
+Horace's mother, Gertrude, was from Connecticut; his father, John Tavares Silver, was born on the island of Maio, 
+Cape Verde, and emigrated to the United States as a young man. 
+She was a maid and sang in a church choir; he worked for a tire company.
+
+
+
+
+
 * Massive Attack - The Spoils ft. [Hope Sandoval](https://en.wikipedia.org/wiki/Hope_Sandoval)
  | [:notes:](https://www.youtube.com/watch?v=8r31DFrFs5A)
  | [:loop:](https://listenonrepeat.com/?v=8r31DFrFs5A)
  |  _(added:20feb2018)_
 
+
 > What an incredible sensation to listen to this song, I am not only fascinated with the music and the lyrics but also the variation of facial representations.
+
+
+During live performances, Sandoval prefers to sing in near-darkness with only a dim backlight, playing the tambourine, harmonica, glockenspiel or shaker.
+She has a reputation for shyness. Her stage presence has been described as "idly withdrawn, barely acknowledging the audience."
+
+
 
 
 
