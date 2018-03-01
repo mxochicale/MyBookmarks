@@ -1,4 +1,4 @@
-SOME OF THE MUSIC WHAT I LIKE TO LISTEN 
+[:musical_note:] SOME OF THE MUSIC THAT I ENJOY TO LISTEN  [:musical_note:]
 ---
 
 
