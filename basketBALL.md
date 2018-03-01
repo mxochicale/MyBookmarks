@@ -20,3 +20,14 @@ I :heart: THIS GAME :basketball:
 * [march 2012](https://www.youtube.com/watch?v=7oNsmz3lKQg)
 * [march 2010](https://www.youtube.com/watch?v=KkCgPk78XiY)
 
+# Kobe - Shaq 1-on-1 Interview
+
+> I do love watching this interview, it is an interesting dialogue
+between two of the most competitive minds in the NBA  [:movie_camera:](https://www.youtube.com/watch?v=bz2-UjtZoBg)
+
+Learn more: [:link:](https://en.wikipedia.org/wiki/Shaq%E2%80%93Kobe_feud)
+
+(added:1march2018)
+
+
+

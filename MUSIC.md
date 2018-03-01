@@ -6,7 +6,11 @@ SOME OF THE MUSIC WHAT I LIKE TO LISTEN
  | [:notes:](https://www.youtube.com/watch?v=t8jFGFwOm7k)
  | [:loop:](https://listenonrepeat.com/?v=t8jFGFwOm7k)
  |  _(added:21feb2018)_
-	** try this one [Horace Silver at Newport 1959](https://www.youtube.com/watch?v=dUAu_3R0VPI) 
+
+	Try this ones:
+	* [Horace Silver at Newport 1959](https://www.youtube.com/watch?v=dUAu_3R0VPI) 
+	* [Horace Silver Trio & Art Blakey + Sabu [1953] | Full Album](https://www.youtube.com/watch?v=N8Nbw2h3KXk) 
+
 
 > such a beuatiful piece, Si Señor!
 
