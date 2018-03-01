@@ -2,6 +2,17 @@ SOME OF THE MUSIC WHAT I LIKE TO LISTEN
 ---
 
 
+* Horace Silver's Blue Note Years Mix: [:notes:](https://soundcloud.com/gillespeterson/horace-silvers-blue-note-years-mix) [:notes:](https://podtail.com/en/podcast/gilles-peterson/horace-silver-tribute-mix/)
+
+> For the first time, I bumped into an undervalued musician before to listening it at Gilles Peterson' show.
+What also surprises me, it is the fact that Gilles created this fabulous tribute mix, on 19 June 2014, 
+one day after Horace's death [:link:](http://www.gillespetersonworldwide.com/horace-silver-tribute-mix/),
+which, considering it as a irrelevant fact, coincides to the year that I came to the UK, October 2014. (added:1march2018)
+
+
+
+
+
 * Horace Silver - Señor Blues ([Horace Silver](https://en.wikipedia.org/wiki/Horace_Silver), [Blue Michell](https://en.wikipedia.org/wiki/Blue_Mitchell)  & [Junior Cook](https://en.wikipedia.org/wiki/Junior_Cook))
  | [:notes:](https://www.youtube.com/watch?v=t8jFGFwOm7k)
  | [:loop:](https://listenonrepeat.com/?v=t8jFGFwOm7k)
