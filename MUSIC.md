@@ -2,6 +2,29 @@
 ---
 
 
+
+* Cannonball Adderley - Know What I Mean? - Full Album [:notes:](https://www.youtube.com/watch?v=KmFfy56nSzY)
+
+These are some interesting facts from [Wikipedia](https://en.wikipedia.org/wiki/Cannonball_Adderley)
+about him: 
+* "His nickname derived from "cannibal", a title imposed on him by high school colleagues as a tribute to his voracious appetite".
+* "He had a cerebral hemorrhage and four weeks later, on August 8, 1975, he died at St. Mary Methodist Hospital in Gary, Indiana. He was 46 years old".
+
+Track Listing Recording: 
+Tracks 2-3, 7, 9-10 recorded on January 27, 1961; tracks 5 & 6 on February 21; tracks 1, 4 & 8 recorded on March 13, 1961, all at Bell Sound Studios, New York City.
+
+Personnel:   
+Cannonball Adderley - Alto saxophone, leader  
+Bill Evans - Piano  
+Percy Heath - Bass  
+Connie Kay - Drums  
+
+> It feels nice to listen to **CANNIBAL**. 
+
+(added 3march2018)
+
+
+
 * Horace Silver's Blue Note Years Mix: [:notes:](https://soundcloud.com/gillespeterson/horace-silvers-blue-note-years-mix) [:notes:](https://podtail.com/en/podcast/gilles-peterson/horace-silver-tribute-mix/)
 
 > For the first time, I bumped into an undervalued musician before to listening it at Gilles Peterson' show.
