@@ -2,8 +2,28 @@
 ---
 
 
+### Oscar Peterson 
+| _(added 3march2018)_
 
-* Cannonball Adderley - Know What I Mean? - Full Album [:notes:](https://www.youtube.com/watch?v=KmFfy56nSzY)
+"Peterson was born to immigrants from the West Indies; his father worked as a porter for Canadian Pacific Railway. 
+His father, Daniel Peterson, an amateur trumpeter and pianist, was one of his first music teachers, and his sister 
+Daisy taught young Oscar classical piano. Peterson was persistent at practising scales and classical études daily, 
+and developed his virtuosity thanks to such arduous practice.
+At the age of nine Peterson played piano with control that impressed professional musicians. 
+For many years his piano studies included four to six hours of daily practice" [ [:link:](https://en.wikipedia.org/wiki/Oscar_Peterson)] .
+
+> Wave, [:musical_note:](https://www.youtube.com/watch?v=j4moS2CXeU8)|[:loop:](https://listenonrepeat.com/?v=j4moS2CXeU8), is simply too beautiful
+
+
+* try:    
+	* [Motions & Emotions](https://www.youtube.com/watch?v=hKoTbEtn3c0)  
+	* Bossa Nova | [:notes:](https://www.youtube.com/watch?v=cSX_7ejc5u8)  
+
+
+
+
+### Cannonball Adderley - Know What I Mean? - Full Album | [:notes:](https://www.youtube.com/watch?v=KmFfy56nSzY)
+| _(added 3march2018)
 
 These are some interesting facts from [Wikipedia](https://en.wikipedia.org/wiki/Cannonball_Adderley)
 about him: 
@@ -21,16 +41,17 @@ Connie Kay - Drums
 
 > It feels nice to listen to **CANNIBAL**. 
 
-(added 3march2018)
 
 
+### Horace Silver's Blue Note Years Mix | [:notes:](https://soundcloud.com/gillespeterson/horace-silvers-blue-note-years-mix) 
+| [:notes:](https://podtail.com/en/podcast/gilles-peterson/horace-silver-tribute-mix/) 
+|  _(added:1march2018)_
 
-* Horace Silver's Blue Note Years Mix: [:notes:](https://soundcloud.com/gillespeterson/horace-silvers-blue-note-years-mix) [:notes:](https://podtail.com/en/podcast/gilles-peterson/horace-silver-tribute-mix/)
 
 > For the first time, I bumped into an undervalued musician before to listening it at Gilles Peterson' show.
 What also surprises me, it is the fact that Gilles created this fabulous tribute mix, on 19 June 2014, 
 one day after Horace's death [:link:](http://www.gillespetersonworldwide.com/horace-silver-tribute-mix/),
-which, considering it as a irrelevant fact, coincides to the year that I came to the UK, October 2014. (added:1march2018)
+which, considering it as a irrelevant fact, coincides to the year that I came to the UK, October 2014.
 
 
 
@@ -55,8 +76,7 @@ She was a maid and sang in a church choir; he worked for a tire company.
 
 
 
-
-* Massive Attack - The Spoils ft. [Hope Sandoval](https://en.wikipedia.org/wiki/Hope_Sandoval)
+###  Massive Attack - The Spoils ft. [Hope Sandoval](https://en.wikipedia.org/wiki/Hope_Sandoval)
  | [:notes:](https://www.youtube.com/watch?v=8r31DFrFs5A)
  | [:loop:](https://listenonrepeat.com/?v=8r31DFrFs5A)
  |  _(added:20feb2018)_
