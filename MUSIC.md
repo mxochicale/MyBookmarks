@@ -1,9 +1,34 @@
-[:musical_note:] SOME OF THE MUSIC THAT I ENJOY TO LISTEN  [:musical_note:]
+SOME PARTICULAR COMBINATION OF FREQUENCIES THAT MY BRAIN ENJOYS TO LISTEN
 ---
+
+### thelonious monk 
+
+"Monk started playing the piano at the age of six and was largely self-taught. 
+He attended Stuyvesant High School, a public school for gifted students, but did not graduate" 
+[:link:](https://en.wikipedia.org/wiki/Thelonious_Monk)
+
+> underground,  [:musical_note:](https://www.youtube.com/watch?v=eXKIEJ0ez98)
+
+(added 17march2018, ~2000)
+
+### isao tomita
+
+"Tomita started arranging Claude Debussy's impressionist pieces for synthesizer and, in 1974, 
+released the album Snowflakes Are Dancing; it became a worldwide success and was responsible 
+for popularizing several aspects of synthesizer programming. The album's contents included ambience, 
+realistic string simulations, an early attempt to synthesize the sound of a symphony orchestra, 
+whistles, and abstract bell-like sounds, as well as a number of processing effects including 
+reverberation, phase shifting, flanging, and ring modulation. 
+Quadrophonic versions of the album provided a spatial audio effect using four speakers" [:link:](https://en.wikipedia.org/wiki/Isao_Tomita)
+
+
+> Clair De Lune [:musical_note:](https://www.youtube.com/watch?v=rlCzO0GX_bA) | [:loop:](https://listenonrepeat.com/?v=rlCzO0GX_bA)
+
+(added 17march2018, ~1000)
 
 
 ### Oscar Peterson 
-| _(added 3march2018)_
+
 
 "Peterson was born to immigrants from the West Indies; his father worked as a porter for Canadian Pacific Railway. 
 His father, Daniel Peterson, an amateur trumpeter and pianist, was one of his first music teachers, and his sister 
@@ -20,6 +45,9 @@ For many years his piano studies included four to six hours of daily practice" [
 	* Bossa Nova | [:notes:](https://www.youtube.com/watch?v=cSX_7ejc5u8)  
 
 
+
+
+ _(added 3march2018)_
 
 
 ### Cannonball Adderley - Know What I Mean? - Full Album | [:notes:](https://www.youtube.com/watch?v=KmFfy56nSzY)
