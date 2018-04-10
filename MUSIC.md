@@ -1,6 +1,19 @@
-SOME COMBINATION OF FREQUENCIES THAT MY BRAIN ENJOYS TO LISTEN
+Collection of FREQUENCIES THAT MY BRAIN CAN *TOLERABLY* LISTEN
 ---
 
+
+### Mesarthim*
+
+> "THE GREAT FILTER APPROACHES"
+[:link](http://www.toiletovhell.com/decoding-absence-the-mesarthim-enigma/)
+
+
+> .- -… … . -. -.-. .  [:musical_note:](https://www.youtube.com/watch?v=jRFjJ3tHato)
+
+* in the astrophysical realm, is a binary star system in the Aries constellation
+(added10april2018,11h29m)
+
+LISTEN MORE OF MESARTHIM at [:link:](https://mesarthim.bandcamp.com/music)
 
 ### elvis costello
 
