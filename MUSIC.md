@@ -1,5 +1,19 @@
-SOME PARTICULAR COMBINATION OF FREQUENCIES THAT MY BRAIN ENJOYS TO LISTEN
+SOME COMBINATION OF FREQUENCIES THAT MY BRAIN ENJOYS TO LISTEN
 ---
+
+
+### elvis costello
+
+> "My ultimate vocation in life is to be an irritant, 
+someone who disrupts the daily drag of life just enough 
+to leave the victim thinking there's maybe more 
+to it all than the mere hum-drum quality of existence."
+[:link:](https://en.wikiquote.org/wiki/Elvis_Costello)
+
+* 10 Elvis Costello Songs [:musical_note:](https://www.youtube.com/watch?v=XSpmgD1pr_8)
+
+(added10april2018,00h40m)
+
 
 ### thelonious monk 
 
