@@ -1,6 +1,16 @@
 Collection of FREQUENCIES THAT MY BRAIN CAN *TOLERABLY* LISTEN
 ---
 
+### Haggard Eppur Si Muove 
+
+> The album is based on the life of the Italian astronomer Galileo Galilei (1564 –1642), who, 
+according to legend, muttered the phrase eppur si muove, meaning "And yet it does move", 
+after being forced to recant, in front of the Inquisition, 
+his belief that the earth moved around the sun. [:link:](https://en.wikipedia.org/wiki/Eppur_Si_Muove_(album))
+
+[:musical_note:](https://www.youtube.com/watch?v=dr0QgwMXbfM)
+
+(added:19april2018)
 
 ### Mesarthim*
 
