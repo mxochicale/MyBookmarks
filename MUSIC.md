@@ -15,8 +15,7 @@ his belief that the earth moved around the sun. [:link:](https://en.wikipedia.or
 ### Mesarthim*
 
 > "THE GREAT FILTER APPROACHES"
-[:link](http://www.toiletovhell.com/decoding-absence-the-mesarthim-enigma/)
-
+[:link:](http://www.toiletovhell.com/decoding-absence-the-mesarthim-enigma/)
 
 > .- -… … . -. -.-. .  [:musical_note:](https://www.youtube.com/watch?v=jRFjJ3tHato)
 
@@ -211,6 +210,18 @@ the hidden patterns in the music. _(added:8NOV2017)_
 _(added: October 2017)_
 
 > More human than human is our motto.   ― Eldon Tyrell
+
+
+# PODCAST
+
+* [An afternoon with Mary Anne Hobbs](https://audiomack.com/song/mx-11/boiler-room-london-an-afternoon-with-mary-anne-hobbs)
+
+* [The Radiohead Story - Part 1](https://audiomack.com/song/mx-11/the-radiohead-story-bbc-radio-6-music-part-1)
+* [The Radiohead Story - Part 2](https://audiomack.com/song/mx-11/the-radiohead-story-bbc-radio-6-music-part-2)
+* [The Radiohead Story - Part 3](https://audiomack.com/song/mx-11/the-radiohead-story-bbc-radio-6-music-part-3)
+* [The Radiohead Story - Part 4](https://audiomack.com/song/mx-11/the-radiohead-story-bbc-radio-6-music-part-4)
+
+(added:14april2018,3h04m)
 
 
 
