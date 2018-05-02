@@ -1,5 +1,26 @@
-Collection of FREQUENCIES THAT MY BRAIN CAN *TOLERABLY* LISTEN
+Collection of FREQUENCIES THAT MY BRAIN CAN sometimes *TOLERABLY* LISTEN
 ---
+
+
+### MIX Burial & Kode9 Mix For Mary Anne Hobbs Full HQ
+
+* [:musical_note:](https://www.youtube.com/watch?v=ZqgDrfSQ56U)
+
+> No man has received from nature the right to give orders to others. 
+> Freedom is a gift from heaven, and every individual of 
+> the same species has the right to enjoy it as soon as 
+> he is in enjoyment of his reason. [denis diderot](https://en.wikiquote.org/wiki/Denis_Diderot)
+
+images: 
+* [Masha Sardari 243/365: sunlight in your eyes](https://www.flickr.com/photos/gomophotography/4960450383/)
+* [plant in the head](https://yt3.ggpht.com/-AnQFrtc1uqY/AAAAAAAAAAI/AAAAAAAAAAA/7syn-n_MzWs/s288-mo-c-c0xffffffff-rj-k-no/photo.jpg)
+
+* my neurons (and body parts) are indeed sparking again
+
+(added:2may2018.14h56m)
+
+
+
 
 ### Haggard Eppur Si Muove 
 
