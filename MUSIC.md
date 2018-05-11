@@ -1,6 +1,40 @@
 Collection of FREQUENCIES THAT MY BRAIN CAN sometimes *TOLERABLY* LISTEN
 ---
 
+### Ursula K. Le Guin & Todd Barton 
+
+Music and Poetry Of The Kesh expands the author’s idea further with music written in the fictional Kesh language. [:link:] (http://www.factmag.com/2018/01/31/ursula-k-le-guin-todd-barton-music-poetry-kesh-album-first-vinyl-release/)
+
+> Soul singin and shining goes outward towards the cold and dark.
+Soul silent and cold comes inward to the shinning, to the siging at the fire.
+Owl flies without sound; coyote goes in darkness; soul  listens and holds still.
+https://www.youtube.com/watch?v=Fp5CTVJCrUE
+
+added: Fri May 11 21:44:25 BST 2018
+
+### ROBERT LIPPOK 
+
+[robert lippok - all objects are moving](https://www.youtube.com/watch?v=_J2s-p4UNG0)
+
+> I do some stuff but you see that I do it with LOVE; you see and you heart that is done with passion!
+~ https://www.youtube.com/watch?v=GciYhXBVnVw
+
+added: Fri May 11 21:37:53 BST 2018
+
+
+### Lamar Kendrick and  Tupac inspirational quotes!
+
+"BOY: You are famous, man"
+"LK:hah,he,just recongnise hard work" 
+https://www.youtube.com/watch?v=KcsRXQkSEiQ
+
+"I Will Spark The Brain That Will Change The World"
+https://www.youtube.com/watch?v=uijBebYpoto
+
+added: Fri May 11 21:35:23 BST 2018
+
+
+
 
 ### MIX Burial & Kode9 Mix For Mary Anne Hobbs Full HQ
 
