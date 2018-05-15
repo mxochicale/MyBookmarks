@@ -1,6 +1,22 @@
 Collection of FREQUENCIES THAT MY BRAIN CAN sometimes *TOLERABLY* LISTEN
 ---
 
+
+###  Tom Raybould – The Machine (Original Motion Picture Soundtrack) 
+
+> a father longing to save his daughter, a scientist wishing he could find the answer, a machine desperate to be more human. 
+[:link:](http://bloody-disgusting.com/editorials/3321660/tom-rayboulds-music-machine-amazing/)
+
+*  https://www.youtube.com/watch?v=X46sO6F6bh4
+
+[Song List](https://www.discogs.com/Tom-Raybould-The-Machine-Original-Motion-Picture-Soundtrack/release/6133441)
+
+added: Tue May 15 20:03:14 BST 2018
+
+
+
+
+
 ### Ursula K. Le Guin & Todd Barton 
 
 Music and Poetry Of The Kesh expands the author’s idea further with music written in the fictional Kesh language. [:link:] (http://www.factmag.com/2018/01/31/ursula-k-le-guin-todd-barton-music-poetry-kesh-album-first-vinyl-release/)
