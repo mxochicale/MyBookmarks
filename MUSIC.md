@@ -1,6 +1,17 @@
 Collection of FREQUENCIES THAT MY BRAIN CAN sometimes *TOLERABLY* LISTEN
 ---
 
+### Ryuichi Sakamoto - "Life, Life - Andy Stott Remodel" (async Remodels)
+> if i were to guess, i would be experiencing some beautful neural activi while listeing to 
+
+* [:music_note:] https://www.youtube.com/watch?v=Se4Z8RHnADw
+* [:loop:] https://youtubeloop.net/watch?v=Se4Z8RHnADw
+
+more about sakamoto: https://www.youtube.com/watch?v=QjiyndquZ2I
+listening the first time with mary anne hobbs: https://www.bbc.co.uk/programmes/b0b30tt9
+
+added: Thu May 24 22:00:40 BST 2018
+
 
 ###  Tom Raybould – The Machine (Original Motion Picture Soundtrack) 
 
