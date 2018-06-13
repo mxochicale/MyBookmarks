@@ -1,5 +1,57 @@
-Collection of FREQUENCIES THAT MY BRAIN CAN sometimes *TOLERABLY* LISTEN
+Collection of FREQUENCIES THAT MY BRAIN CAN sometimes *TOLERABLY* LISTEN TO
 ---
+
+###  SUPER HUMAN FEAT. OBONGJAYAR & MICHAELA COEL
+
+
+https://soundcloud.com/kojeyradical/super-human   
+
+
+https://genius.com/Kojey-radical-super-human-lyrics   
+More: https://twitter.com/KojeyRadical
+
+```
+
+(VERSE 1) OBONGJAYAR
+
+I’ve showed you my darkness
+Fed you my flesh
+You made anthems of my tears
+I'm no super human
+I can’t save you and save my self
+I'm no super human
+Super
+
+(VERSE 2) MICHAELA COEL
+(Written by KOJEY RADICAL)
+
+I built my ideals on standards I learned as an infant and then imagined my own, like most curious teenagers no?
+
+I watched my peers walk a path far different to mine and grew more confident with my own solitude
+
+Politics, love, manhood and sexuality I discovered like a blind lamb in the hands of a unfamiliar shepherd
+
+With coloured pigmentation you must accept that your historically pivotal leaders will more than likely be killed
+
+With darker pigmentation you become an example of exoticism under a western microscope
+
+Elements of your identity appropriated and sold back to you with less than clever tag lines
+
+And through it all you must smile
+
+And continue to dance
+
+Yeah keep dancing
+Knowing the revenge will taste so much sweeter once you’ve made it
+
+
+```
+
+
+
+added: Wed Jun 13 16:58:42 BST 2018
+
+
 
 ### Ryuichi Sakamoto - "Life, Life - Andy Stott Remodel" (async Remodels)
 > if i were to guess, i would be experiencing some beautful neural activi while listeing to 
